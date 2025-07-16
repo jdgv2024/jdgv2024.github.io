@@ -1,1 +1,0 @@
-# jdgv2024.github.io
